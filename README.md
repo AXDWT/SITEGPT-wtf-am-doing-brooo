@@ -1,7 +1,7 @@
 # da best in za west
 
 ![img](https://i.ibb.co/yd8JjxL/image.png)
-
+(used with GPT-3)
 # why did i made dis
 
 #### i made this shit while i was shitting in the toilet while cooking i was making fire beats tbh
