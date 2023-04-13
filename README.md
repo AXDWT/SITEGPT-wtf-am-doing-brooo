@@ -8,6 +8,8 @@
 (used with GPT-3)
 ![image](https://user-images.githubusercontent.com/101076259/230707160-69412935-4a3c-4f47-b91f-1ea01f90e078.png)
 (used with GPT-3)
+![image](https://user-images.githubusercontent.com/101076259/231747900-27333edc-9b32-48b4-9c4b-37a93c77dd2d.png)
+(used with GPT-3)
 # why did i made dis
 
 #### i made this shit while i was shitting in the toilet while cooking i was making fire beats tbh
