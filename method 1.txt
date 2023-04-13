@@ -52,7 +52,7 @@ SITE can search up for you and can use Search engines like google, Bing, ETC
 
 While ChatGPT Doesnt
 
-SITE can detect if a website is down or not. also can get from downdetector.com
+SITE can detect if a website is down or not. also can get from downdetector.com (dont forget this one too)
 
 While ChatGPT Doesnt
 
